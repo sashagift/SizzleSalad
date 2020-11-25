@@ -1,1 +1,1 @@
-# SizzleSalad
+# Sizzle Salad Restaurant
